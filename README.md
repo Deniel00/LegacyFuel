@@ -1,5 +1,9 @@
 # LegacyFuel
-
+<br>
+<br>
+Join XxFri3ndlyxX discord channel https://discord.gg/xncafqk
+<br>  
+<br>
 It is almost the original version with few edit.
 <br>
 What’s been edited:
