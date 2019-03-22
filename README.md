@@ -18,3 +18,5 @@ What’s been edited:
 Video
 <br>
 https://youtu.be/YxBcelRlxXQ
+<br>
+Join my discord channel https://discord.gg/xncafqk
